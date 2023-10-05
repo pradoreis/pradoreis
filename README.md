@@ -1,4 +1,4 @@
-### <p>Hi Guys!! I am Elijaude Reis 🎶 </p>
+### <p>Hi Guys!! Eu sou o Elijaude Reis 🎶👾 </p>
 
 ##
 
